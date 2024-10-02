@@ -1,1 +1,0 @@
-gomana ka ples
